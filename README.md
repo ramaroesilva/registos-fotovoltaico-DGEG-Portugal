@@ -1,0 +1,1 @@
+# registos-fotovoltaico-DGEG-Portugal
